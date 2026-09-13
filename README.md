@@ -6,6 +6,6 @@
 
 <div align="center">
 <sub>
-Andrea & Aldo's wedding invitation — October 18, 2026.
+Andrea & Aldo's wedding invitation — October 18, 2025.
 </sub>
 </div>
